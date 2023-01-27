@@ -1,0 +1,2 @@
+# Kalculator
+.pk,johminugbfyvtdcrsxeawzSRDTF YGUIOKKJPO 
